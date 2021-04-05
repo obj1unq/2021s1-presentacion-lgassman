@@ -1,6 +1,6 @@
 # Presentación
 
-## Estudiante: _Leonardo Gassman_
+## Profesor: _Leonardo Gassman_
 
 
 
