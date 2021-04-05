@@ -4,7 +4,7 @@
 
 
 
-Soy profe e ingeniero en sistemas. Soy papá de Milena. Rara vez me vas a ver peinado.
+Soy profe e ingeniero en sistemas. Soy papá de Milena. Rara vez me vas a ver peinado y afeitado.
 
 Espero poder ayudarte a que aprendas muchas cosas útiles durante la cursada.
 
